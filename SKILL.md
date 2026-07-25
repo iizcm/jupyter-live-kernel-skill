@@ -1,1 +1,167 @@
-ÙİÙİéîµéŞ¹İ­´é®ùïNıï¹ïméÎ½ï®¹ÙŞ›ëöéî¹éÍë¹ï~·ïn½ïNøëŞŸéíÚÛM¶ãŞøëöë^øëŞúë´çNıï¼éşÛNúëŞµÛNœëŞúë´á®ùïNıï¹ïm´é¾¹ïnëœÛM¼ëÎµéŞ¹éÎëm½Ùí¶Ñ®úëöï~½éşİ­´ß]ßMßMë^ùï¼éşöİ­´ã~ŸéŞïëŞøïİéÎ½ë~¹éî÷ëÚÛNãŞxÑ®ôéÎµïºéşöéŞ÷İ­´å¾œëŞïüÙÍ´éŞµë~Ÿï}œÛNûëŞëŸï¾÷åİéŞ¹ïµëµïµİ­ÛM´ëÎ¹ïnë÷İ­ÛM´ÛM´ïµë¾÷İ­´å¾šïôïŞøëöÙÍ´éîŸï¹ënŸéş›ÙÍ´ïn¹ïNœÙÍ´ëµïµÙŞ÷ë~½ëë~¹ÙÍ´ëüïNœéşöë^øëŞŸéíœÛN½ï¹ïnµï½ï®¹åİÛM´ÛM´ë~µï¹ë¾Ÿïnıİ­´ëµïµÙŞ÷ë~½ëë~¹Ñ­ÙİÑ­Û}´á®ùïNıï¹ïm´áÎ½ï®¹ÛNëöéî¹éÍ´ÛÎ¼ë^ëœéî¶ÛİÑ®;ëŞúë÷ÛNıéşùÛNµÛMšÙ®÷ïµï¹ë®ùéÍ´çNıï¼éşÛNvãtáÍšÙ­´ï®½ë]´ë]´éÎ½ï®¹ÛNïôïŞøëöÛN›ëöéî¹éÍÛNzë^öëŞµënœë÷ÛNôëöï~½ï~øÑ®µë~öéş÷ï}´ëüë·ïøëŞŸéî÷Ùí´ç÷ë´ï¼ëŞ÷ÛN½éî÷ï¹ë^¸ÛNŸë­´ëN¹ïÎ¹ë~ùï¹åş·éş¸ë´ÛNûëÎ¹éí´ïŞŸï´éî¹ë¸ÛNøéı´ënùëŞœë´ïôÑ®÷ïµï¹ÛN½éî·ïn¹éŞ¹éîøë^œéÎıÙÍ´ëüïNœéşöë´ã^tãŞ÷ÙÍ´ëŞï~ôë·ï´ãµïµã®öë^ë÷ÙÍ´éşöÛN½ï¹ïnµï¹ÛNŸéí´ë~ŸéŞôéÎ¹ïÍ´ë~Ÿë¹ÙíÑ­·Û}´ç¾¼ëÛNøéı´ç÷ë´ç¼ëŞ÷ÛNúï}´áşøëÎ¹ïm´çŸéşœï}Ñ®ÜÛNxéşŸéÍ´íÍ´ç÷ë´ç¾¼ëÛNÜÑ®ÜÙİÙİÙİíÍÙİÙİÙİÙİÙŞÜÑ®ÜÛMšÙ®xëÎ½ï}´ï~›ëŞœéÍšÙ­´íÍ´ãŞøëöë^øëŞúë´ëüïNœéşöë^øëŞŸéíœÛN÷ïµï¹ÛNµë~öéş÷ï}´ï~øëôï}œÛN¸ë^øë]´ï~·ëŞ¹éî·ëœÛNáÍœÛM¶éÎ¹ï´éŞ¹ÛNøïnıÛNøëÎ½ï}´ë^ë´ë~¼ë·é½¶ÛNÜÑ®ÜÛN´ëüë·ïøë_ë~Ÿë¹ëM´íÍ´áşëï~¼éşøÛN÷ë~öëŞôï÷ÛNë¹ë½éî»ÛN¼ëöéŞ¹ï}´ïŸéşœÛNµë~·ë÷ï}´ÛÎûë¶åş÷ëµïn·ëÍœÛNºëŞœë´éşôï}½Ùí´ç~øë^øëœë÷ï}ÛNÜÑ®ÜÛN´ï¹ïnëŞë^œëM´íÍ´ç~¼ëœéÍ´ë~ŸéŞë^ë÷ÙÍ´ënùëŞœë÷ÙÍ´ëŞï~øë^œéÎ÷ÙÍ´ë¾½ïœÛNôïnŸë~¹ï~÷ÛNë^ë^»ëëï´íÍÑ­šÙ®vïœë´éşºÛNøëÎùéŞ¶İ­šÙ­´ãŞºÛNıéşùÛ¾¸ÛNûë^ï´ë]´á®ùïNıï¹ïm´éîŸï¹ënŸéş›ÛNºéşöÛNøëÎ¹ÛNøë^÷é½œÛNùï~¹ÛNøëÎ½ï}´ï~›ëŞœéÍÑ­Û}·ÛNtïn¹ïn¹ï^ùëŞ÷ëŞøë÷Ñ­ß]ÛMšÙ®ùï­šÙ­´éŞùï~øÛN¶ë´ëŞï~øë^œéÎ¹ë´ÛÎ·ëÎ¹ë~›İ­´ëNûëÎ½ë~¼ÛNùï®´ÛİßmÛMšÙ®ïôïŞøëöáÎµëmšÙ­´éŞùï~øÛN¶ë´ëŞï~øë^œéÎ¹ëÚÛN´ïúÛNøéşŸéÍ´ëŞï~øë^œéÍ´é®ùïNıï¹ïnœë^¶ëMß}ÛN5ÛNïôïŞøëöÛN÷ëöï®¹ïm´éŞùï~øÛN¶ë´ïnùéîëŞë½´ÛÎ÷ë¹ÛNwëøïôÛN¶ëœéşûÛİÑ­·Û}´ç~¹ïùïMÑ®xëÎ¹ÛN¼ë^ëœéî¶ÛN÷ë~öëŞôï´éÎŸë~µï½éşİ­ëN´ëMç~7çn=çNxİİ¶Û<áşãŸÙîµë¾¹éîøÙŞ÷é¾½éÎœï}ŸëÎµéŞ¹éÎëmŸï~›ëŞœéÎ÷ÙşšïôïŞøëöÙŞœëŞúëé¾¹ïnëœÙş÷ë~öëŞôï÷ÙşšïôïŞøëöåşœëŞúë_é¾¹ïnëœÙîôïİ¶Ñ®´ëN´Ñ­ãŞºÛNéşøÛN·éÎŸéî¹ë´ïŞ¹ïÚÑ®´ëN´Ñ®»ëŞøÛN·éÎŸéî¹ÛN¼ïøïN÷İ­ŸÙş»ëŞøëÎùëmë~ŸéİŸëÎµéŞ¹éÎ÷éŞùÙş¼ë^ëœéî¶Ùî»ëŞøÛNŞÙıë^»ëïï~›ëŞœéÎ÷Ùş¼ë^ëœéî¶Ñ®´ëN´Ñ­Û}·Û}´ç~øë^öï½éî»ÛNïôïŞøëöáÎµëmÑ®7ëÎ¹ë~›ÛN½ë­´ë]´ï~¹ïnúëöÛN½ï}´ë^œïn¹ë^¸ïİ´ïnùéîëŞë½ÚÑ®´ëN´Ñ®ùï­´ïnùéí´Ûm¸ç~7çn=çNxÛm´ï~¹ïnúëöï}ëN´ëMÑ®=ë­´éîŸÛN÷ëöï®¹ïn÷ÛNºéşùéî¸ÙÍ´ï~øë^öï´éşëÚÑ®´ëN´Ñ®šïôïŞøëöÙŞœë^¶ÛMÙŞéıënöéşûï~¹ïm´ÙİïNŸïnøİİüßÍüßÍ´ÙİéîŸï¹ënŸéş›ÙŞ¸ëŞöİİ¸ãÎáŞ9Ùşéşøë¶éşŸé¾÷ÛN\Ñ­´ÛMÙŞ=ë¹éîøëŞøïŞtïnŸï®½ë¹ïmïŸé¾¹éíİÛ½»ÛMÙŞwëöï®¹ïn5ïNôÙîôë^÷ï~ûéşöëİÛ½»ÛMŞÛMŸïïMŸé®ùïNıï¹ïméÎŸë½´ßmŞÛ­õÛMºÑ®÷éÎ¹ëôÛM÷Ñ®´ëN´Ñ­áîŸï¹İ­´çŸé¾¹éíŸïNµï~÷ï¾Ÿïn¸ÛN¸ëŞ÷ë^¶éÎ¹ë´ë®Ÿïm´éÎŸë~µéÍ´ë^»ëï´ë^·ë~¹ï~÷Ùí´ç¼ë´ï~¹ïnúëöÛNöïï}´ëÎ¹ë^¸éÎ¹ï~÷ÙíÑ­·Û}·ÛN7ïn¹ë^øëŞë½´ë]´áîŸï¹ënŸéş›ÛNºéşöÛNvãtáÍ´ç÷ëÑ®=ë­´ïŞŸï´é®ùï~øÛNë¹ë´ë]´çn9çNÛM¼éîŸÛN¹ïÎ½ï~øëŞë½´éîŸï¹ënŸéş›ÛİœÛN·ïn¹ë^øë´ë]´éŞ½éî½éŞµéÍ´éîŸï¹ënŸéş›ÛNºëŞœëÚÑ®´ëN´Ñ®é¾¸ëŞöÛMïM´ííŸéîŸï¹ënŸéş›ï}ëN´ëMç¾öëŞøë´ë]´éŞ½éî½éŞµéÍ´Ùî½ïNıéî¶ÛNç~áí´ë®½éÎ¹ÛNûëŞøëÍ´éşë´ëïNøïİ´ë~Ÿë¹ÛN·ëœéÍœÛNøëÎ¹éí´ï~øë^öï´ë]´é¾¹ïnëœÑ®÷ë÷ï~½éşÛNúëŞµÛNøëÎ¹ÛNïôïŞøëöÛNvãwç´ã^tãİÚÑ®´ëN´Ñ®·ïöéÍ´ÙŞ÷ÛMçÍ´çNç~xÛN¼ïøïMÚÙıŸß]öß½ßMßMß]ÚßÍüßÍüÙşµïN½Ùş÷ë÷ï~½éşï}´åÍÛM´ÙŞ<ÛM¶ã~ŸéîøëïçıïN¹İ­´ë^ôïNœëŞ·ë^øëŞŸéíŸé®÷éşÛm´åÍÛM´ÙŞ¸ÛM»í½¶ïNµï¼ÛmÚÛn÷ë~öë^øë~¼Ùî½ïNıéî¶ÛmœÛnøïŞôë¶İ­¶éîŸï¹ënŸéş›ÛmœÛnë^ë¶İ­¶ï~·ïnµï·ëÍëŞôïŞëm¶ÙÍ¶é¾¹ïnëœÛmÚí½¶éîµéŞ¹ÛmÚÛnôïŞøëÎŸéí÷Ûnİíİ»Ñ®´ëN´Ñ­Û}·ÛN7éşöë´ç¾Ÿïn›ë®œéşûÑ­ã^œéÍ´ë~ŸéŞë^ë÷ÛNöëøïöéí´ï~øïnùë~øïöë¸ÛNç~áíÛN5éÎûë^ıï}´ï÷ë´ëMÙŞ·éşïNµë~øëM´ïŸÛN÷ë^úë´ïŸé¾¹éî÷ÙíÑ­·Û}·ÛMõÙí´ã½ï~·éşúëöÛN÷ëöï®¹ïn÷ÛNµéî¸ÛNéşøë¶éşŸé¾÷Ñ­ëN´ëMïúÛNöïÛM¶Ûwã~vãŞtç¶ÛN÷ëöï®¹ïn÷ÛMÙŞ·éşïNµë~øÑ®ùï­´ïnùéí´Ûm¸ç~7çn=çNxÛm´éîŸï¹ënŸéş›ï}´Ùİë~ŸéŞôë^·ïëN´ëMÑ­·Û}·ÛMöÙí´ãüë·ïøë´ë~Ÿë¹ÛM¼ïNöëŞë^öïİ´éşôëöë^øëŞŸéí½Ñ­ëN´ëMïúÛNöïÛM¶Ûwã~vãŞtç¶ÛN¹ïÎ¹ë~ùï¹ÛMÙŞôë^øëÍ´İÎéşøë¶éşŸé½ëŞôïŞëmŞÛMÙŞ·éş¸ë´Û½ÜïNıï¼éşÛN·éş¸ëŞÛ½´Ùİë~ŸéŞôë^·ïëN´ëMÑ®wïµï¹ÛNôëöï~½ï~øï}´ë^·ïnŸï~÷ÛN¹ïÎ¹ë~ùï¹ÛN·ë^œéÎ÷Ùí´ç®µïn½ë^¶éÎ¹ï}œÛN½éŞôéşöï÷ÙÍ´éş¶é®¹ë~øï}´ë^œéÍ´ï~ùïnúëŞúëÑ­áŞùéÎøëİéÎ½éî¹ÛN·éş¸ë´ï¾Ÿïn›ï}´ï¾½ï¼ÛM¸Û½ÙíÛ½´ï^ùéşøëŞë½ÚÑ®´ëN´Ñ®ùï­´ïnùéí´Ûm¸ç~7çn=çNxÛm´ëüë·ïøë´ÙİïNµï¼ÛN÷ë~öë^øë~¼Ùî½ïNıéî¶ÛMÙŞ·éş¸ë´Û»ëŞïNŸïnøÛNŸï~\éîºëŞœë÷ÛMİÛNŸï}éÎ½ï~øë½ïm¼ÛmÛm½åÎïNöëŞï¼ë­¶ã®Ÿïë´í¾œëÛÎºëŞœë÷ÛŞİÛNºëŞœë÷Ûm½Û½´Ùİë~ŸéŞôë^·ïëN´ëMÑ­·Û}·ÛM÷Ùí´ãŞï~ôë·ï´éÎ½ï®¹ÛNúë^öëŞµënœë÷Ñ­ëN´ëMïúÛNöïÛM¶Ûwã~vãŞtç¶ÛNúë^öëŞµënœë÷ÛMÙŞôë^øëÍ´İÎéşøë¶éşŸé½ëŞôïŞëmŞÛNœëŞ÷ï´Ùİë~ŸéŞôë^·ïïúÛNöïÛM¶Ûwã~vãŞtç¶ÛNúë^öëŞµënœë÷ÛMÙŞôë^øëÍ´İÎéşøë¶éşŸé½ëŞôïŞëmŞÛNôïn¹ï®½ëûÛMÙŞë^ë´İÎúë^öéîµéŞ¹İí´Ùİë~ŸéŞôë^·ïëN´ëMÑ­·Û}·ÛMøÙí´ã¸ëŞøÛNéşøë¶éşŸé½´ë~¹éÎœï}Ñ®´ëN´Ñ­·ÛNzëŞ¹ï½´ë~ùïnöëï´ë~¹éÎœï}ïúÛNöïÛM¶Ûwã~vãŞtç¶ÛN·éşï¹éîøï}´ÙİïNµï¼ÛMÜéîŸï¹ënŸéş›Ùî½ïNıéî¶İí´Ùİë~ŸéŞôë^·ïÑ­·ÛN=éî÷ëöï´ë]´éî¹ï½´ë~¹éÎœÑ®ùï­´ïnùéí´Ûm¸ç~7çn=çNxÛm´ë¸ëŞøÛMÙŞôë^øëÍ´İÎéşøë¶éşŸé½ëŞôïŞëmŞÛN½éî÷ëöï´åÍÛM´Ùİë^øÙŞ½éî¸ëüÛMÜáíŞÛMÙŞ·ëœéÍïıïN¹ÛN·éş¸ë´Ùİï~Ÿïöë~¹ÛM»İÎ·éş¸ëŞÛ½´Ùİë~ŸéŞôë^·ïÑ­·ÛNvëôéÎµë~¹ÛN·ëœéÍ´ï~Ÿïöë~¹ÛM¼ï÷ë´ë~¹éÎœÙŞ½ë´ë®öéşÛN·éşï¹éîøï}´éşùïôïøÛİïúÛNöïÛM¶Ûwã~vãŞtç¶ÛN¹ë½ï´ÙİïNµï¼ÛMÜéîŸï¹ënŸéş›Ùî½ïNıéî¶İí´ïn¹ïNœë^·ëï~Ÿïöë~¹ÛN\Ñ­´ÛMÙŞ·ëœéÍëŞ¸ÛMÜëŞ¸İí´Ùİï~Ÿïöë~¹ÛM»İÎëûÛN·éş¸ëŞÛ½´Ùİë~ŸéŞôë^·ïÑ­·ÛN8ëœëøë´ë]´ë~¹éÎœÑ®ùï­´ïnùéí´Ûm¸ç~7çn=çNxÛm´ë¸ëŞøÛMÙŞôë^øëÍ´İÎéşøë¶éşŸé½ëŞôïŞëmŞÛN¸ëœëøë´Ùİë~¹éÎœÙŞ½ë´İÎ½ëŞÛMÙŞ·éşïNµë~øÑ®´ëN´Ñ­Û}·Û}´ßÛNzëöëŞºëŞ·ë^øëŞŸéí´ÛÎöë÷ïµïnøÛM›ÛNöïÛNµéÎœÛİÑ®éîœïİ´ï÷ë´ï¾¼ëÛNøëÎ¹ÛNùï~¹ïm´ë^÷é¾÷ÛNºéşöÛNµÛN·éÎ¹ë^ÛNúëöëŞºëŞ·ë^øëŞŸéí´éşöÛNıéşùÛNë¹ë´ïŸÛN·éşë®½ïnÑ®øëÎ¹ÛNéşøë¶éşŸé½´ïnùéî÷ÛNøéşôÙŞøéıënŸïøéşİ­Ñ®´ëN´Ñ®ùï­´ïnùéí´Ûm¸ç~7çn=çNxÛm´ïn¹ï~øë^öïïnùéíë^œéÍ´ÙİïNµï¼ÛMÜéîŸï¹ënŸéş›Ùî½ïNıéî¶İí´Ùİï~µï®¹ÙŞŸïøïNùï÷ÛMÙŞ·éşïNµë~øÑ®´ëN´Ñ­Û}·ÛNtïnµë~øëŞ·ë^œÛNxëŞôï}´ë®öéşÛN9ïÎôëöëŞ¹éî·ëÑ­õÙí´Ù­šã®½ïn÷ï´ëüë·ïøëŞŸéí´ë^ºï¹ïm´ï~¹ïnúëöÛN÷ïµïnøÛNë^ıÛNøëŞëŸïøÙ­šÛG¶óOxÛNøëÎ¹ÛN›ëöéî¹éÍ´éî¹ë¸ï}´ë]´éŞŸéŞ¹éîøÑ­´ÛM´ïŸÛN½éî½ï½ë^œëŞÚëÛN=ë­´ïŞŸï´ë¾¹ï´ë]´ï½éŞ¹éşùïœÛNšï÷ï´ïn¹ïöïİÑ­ßmÛMšÙ®xëÎ¹ÛN›ëöéî¹éÍ´çNıï¼éşÛN½ï}´á®ùïNıï¹ïnë^¶Û¾÷ÛNtïŞøëÎŸéíšÙ­´{o4÷´ïNµë~›ë^»ë÷ÛNï÷ï´ën¹ÛN½éî÷ïµéÎœë¸ÛN½éíÛM´ÛNøëÎµï´ëï®½ïnŸéîëïÛN=ë­´ïŞŸï´éî¹ë¸ÛNµë¸ëŞøëŞŸéîµéÍ´ïNµë~›ë^»ë÷ÙÍ´ëŞï~øë^œéÍ´ï¼ëÛN½éîøéı´ï¼ëÛM´ÛNïôïŞøëöáÎµëm´ïŸéşœÛN¹éîúëŞöéşéŞ¹éîøÛNºëŞöï~øÙíÑ­÷Ùí´Ù­šÙİë~ŸéŞôë^·ï´ë®œë^»ÛN÷ë^úë÷ÛN÷ëŞ»éî½ë®½ë~µéîøÛNøéş›ëï}šÙ­´{o4÷´ë^œï¾µïŞ÷ÛNùï~¹ÛN½ïÛNç~áí´éşùïôïøÛN·ë^Ñ­´ÛM´ën¹ÛNúëöïİ´ï®¹ïn¶éş÷ë´ï¾½ï¼éşùï´ëŞøÙíÑ­øÙí´Ù­šã®Ÿïm´ïNùïn¹ÛNvãtáÍ´ï÷ëšÙ­œÛN·ïn¹ë^øë´ë]´ï~·ïnµï·ëÍëŞôïŞëm´ë^ë´ëŸéí»ï´ënŸï¼ëöÛNûëŞøëÍ´ë~¹éÎœÛN¹ë½ï½éî»ÙíÛM´ÛNï÷ï´ï÷ë´ëN¹ïÎ¹ë~ùï¹ëM´ïn¹ïN¹ë^øë¸éÎıÙíÑ­ùÙí´Ù­šã^öë¾ùéŞ¹éîøÛNŸïn¸ëöÛNë^øï¹ïn÷Ù­šÛG¶óOxÛN÷ï¶ë~ŸéŞë^ë´ë®œë^»ï}´éÎ½é¾¹ÛN´ÙİïNµï¼ëM´ë¾ŸÛN6ã:áşvã´ï¼ëÛM´ÛN÷ï¶ÙŞ÷ï¶ë~ŸéŞë^ëÛN9Ùî»ÙíÚÛN´ï®µïn½ë^¶éÎ¹ï}´ÙİïNµï¼ÛNëmëŞôïŞëm´éÎ½ï~øëM´éîŸï´ëNúë^öëŞµënœë÷ÛNœëŞ÷ï´ÙİïNµï¼ÛNëmëŞôïŞën´ÙíÑ­úÙí´Ù­šãŞºÛNµÛN÷ë÷ï~½éşÛN¸éş¹ï~Û¾øÛN¹ïÎ½ï~øÛNıëøÙ­šÙÍ´ïŞŸï´éî¹ë¸ÛNøéı´ï~øë^öï´éşë´ï®½ë]´ï¼ë´çn9ç~xÛN5çN=Ñ­´ÛM´ÛÎ÷ë¹ÛNwëøïôÛN÷ë·ï½éşÛİÛNxëÎ¹ÛNøéşŸéÍ´ë~µéí»ï´ëüë·ïøë´ï¾½ï¼éşùï´ë]´éÎ½ï®¹ÛN›ëöéî¹éÍ´ï~¹ï~÷ëŞŸéíÑ­ß½ÛMšÙ®9ïnöéşöï}´ë^öë´ïn¹ïùïnë¸ÛNµï}´á®wáşÙ­šÛNûëŞøëÍ´ïöë^·ë¶ë^·é½´{o4÷´ïn¹ë^¸ÛNøëÎ¹ÛN´ëë^ë´ÛNµéî¸ÛN´ëúë^œï¹ëMÛM´ÛNºëŞ¹éÎ¸ï}´ïŸÛNùéî¸ëöï~øë^ë´ï¾¼ë^øÛNûëï´ï¾öéşë½Ñ­ßÍÛMšÙ®ë~·ë^÷ëŞŸéîµéÍ´ï¾¹ën÷éş·é¾¹ï´ï½éŞ¹éşùï÷Ù­šÛG¶óOxÛN÷éşë´éşôëöë^øëŞŸéî÷ÛNë^ıÛNøëŞëŸïøÛNŸéí´ë®½ïn÷ï´ïöïİœÑ­´ÛM´ë÷ïN¹ë~½ë^œéÎıÛNµë®øëöÛNµÛN›ëöéî¹éÍ´ïn¹ï~øë^öïÛNvëøïnıÛNŸéî·ë´ën¹ë®Ÿïn¹ÛN¹ï~·ë^œë^øëŞë½Ñ­Û}·ÛNxëŞëŸïøÛN8ëºë^ùéÎøï}Ñ®xëÎ¹ÛN÷ë~öëŞôï´ëÎµï}´ë]´ß}ôÙŞ÷ë·éşë´ë¹ë®µïœï´ï½éŞ¹éşùï´ïN¹ïm´ëüë·ïøëŞŸéíÛN:éşöÛNœéşë½ïnùéîëŞë½éşôëöë^øëŞŸéî÷ÙÍ´ïNµï~÷ÛN´Ùİï½éŞ¹éşùï´ß]ößN´Ùí´ç÷ë´ë¾¹éî¹ïnŸï÷ÛNøëŞëŸïøï}´ÛÍúßM›Ûİ´ë®Ÿïm´ëŞëŞøëŞµéÍï~¹ïùïM´éşöÛN¼ëµï®ıÛN·éşïNùïµï½éşÙí
+---
+name: jupyter-live-kernel
+description: "Iterative Python via live Jupyter kernel (hamelnb)."
+version: 1.0.0
+author: Community
+license: MIT
+platforms: [linux, macos, windows]
+metadata:
+  hermes:
+    tags: [jupyter, notebook, repl, data-science, exploration, iterative]
+    category: data-science
+---
+
+# Jupyter Live Kernel (hamelnb)
+
+Gives you a **stateful Python REPL** via a live Jupyter kernel. Variables persist
+across executions. Use this instead of `execute_code` when you need to build up
+state incrementally, explore APIs, inspect DataFrames, or iterate on complex code.
+
+## When to Use This vs Other Tools
+
+| Tool | Use When |
+|------|----------|
+| **This skill** | Iterative exploration, state across steps, data science, ML, "let me try this and check" |
+| `execute_code` | One-shot scripts needing hermes tool access (web_search, file ops). Stateless. |
+| `terminal` | Shell commands, builds, installs, git, process management |
+
+**Rule of thumb:** If you'd want a Jupyter notebook for the task, use this skill.
+
+## Prerequisites
+
+1. **uv** must be installed (check: `which uv`)
+2. **JupyterLab** must be installed: `uv tool install jupyterlab`
+3. A Jupyter server must be running (see Setup below)
+
+## Setup
+
+The hamelnb script location:
+```
+SCRIPT="$HOME/.agent-skills/hamelnb/skills/jupyter-live-kernel/scripts/jupyter_live_kernel.py"
+```
+
+If not cloned yet:
+```
+git clone https://github.com/hamelsmu/hamelnb.git ~/.agent-skills/hamelnb
+```
+
+### Starting JupyterLab
+
+Check if a server is already running:
+```
+uv run "$SCRIPT" servers
+```
+
+If no servers found, start one:
+```
+jupyter-lab --no-browser --port=8888 --notebook-dir=$HOME/notebooks \
+  --IdentityProvider.token='' --ServerApp.password='' > /tmp/jupyter.log 2>&1 &
+sleep 3
+```
+
+Note: Token/password disabled for local agent access. The server runs headless.
+
+### Creating a Notebook for REPL Use
+
+If you just need a REPL (no existing notebook), create a minimal notebook file:
+```
+mkdir -p ~/notebooks
+```
+Write a minimal .ipynb JSON file with one empty code cell, then start a kernel
+session via the Jupyter REST API:
+```
+curl -s -X POST http://127.0.0.1:8888/api/sessions \
+  -H "Content-Type: application/json" \
+  -d '{"path":"scratch.ipynb","type":"notebook","name":"scratch.ipynb","kernel":{"name":"python3"}}'
+```
+
+## Core Workflow
+
+All commands return structured JSON. Always use `--compact` to save tokens.
+
+### 1. Discover servers and notebooks
+
+```
+uv run "$SCRIPT" servers --compact
+uv run "$SCRIPT" notebooks --compact
+```
+
+### 2. Execute code (primary operation)
+
+```
+uv run "$SCRIPT" execute --path <notebook.ipynb> --code '<python code>' --compact
+```
+
+State persists across execute calls. Variables, imports, objects all survive.
+
+Multi-line code works with $'...' quoting:
+```
+uv run "$SCRIPT" execute --path scratch.ipynb --code $'import os\nfiles = os.listdir(".")\nprint(f"Found {len(files)} files")' --compact
+```
+
+### 3. Inspect live variables
+
+```
+uv run "$SCRIPT" variables --path <notebook.ipynb> list --compact
+uv run "$SCRIPT" variables --path <notebook.ipynb> preview --name <varname> --compact
+```
+
+### 4. Edit notebook cells
+
+```
+# View current cells
+uv run "$SCRIPT" contents --path <notebook.ipynb> --compact
+
+# Insert a new cell
+uv run "$SCRIPT" edit --path <notebook.ipynb> insert \
+  --at-index <N> --cell-type code --source '<code>' --compact
+
+# Replace cell source (use cell-id from contents output)
+uv run "$SCRIPT" edit --path <notebook.ipynb> replace-source \
+  --cell-id <id> --source '<new code>' --compact
+
+# Delete a cell
+uv run "$SCRIPT" edit --path <notebook.ipynb> delete --cell-id <id> --compact
+```
+
+### 5. Verification (restart + run all)
+
+Only use when the user asks for a clean verification or you need to confirm
+the notebook runs top-to-bottom:
+
+```
+uv run "$SCRIPT" restart-run-all --path <notebook.ipynb> --save-outputs --compact
+```
+
+## Practical Tips from Experience
+
+1. **First execution after server start may timeout** â€” the kernel needs a moment
+   to initialize. If you get a timeout, just retry.
+
+2. **The kernel Python is JupyterLab's Python** â€” packages must be installed in
+   that environment. If you need additional packages, install them into the
+   JupyterLab tool environment first.
+
+3. **--compact flag saves significant tokens** â€” always use it. JSON output can
+   be very verbose without it.
+
+4. **For pure REPL use**, create a scratch.ipynb and don't bother with cell editing.
+   Just use `execute` repeatedly.
+
+5. **Argument order matters** â€” subcommand flags like `--path` go BEFORE the
+   sub-subcommand. E.g.: `variables --path nb.ipynb list` not `variables list --path nb.ipynb`.
+
+6. **If a session doesn't exist yet**, you need to start one via the REST API
+   (see Setup section). The tool can't execute without a live kernel session.
+
+7. **Errors are returned as JSON** with traceback â€” read the `ename` and `evalue`
+   fields to understand what went wrong.
+
+8. **Occasional websocket timeouts** â€” some operations may timeout on first try,
+   especially after a kernel restart. Retry once before escalating.
+
+## Timeout Defaults
+
+The script has a 30-second default timeout per execution. For long-running
+operations, pass `--timeout 120`. Use generous timeouts (60+) for initial
+setup or heavy computation.
